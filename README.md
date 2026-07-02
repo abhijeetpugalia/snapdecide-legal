@@ -75,7 +75,7 @@ If we update this Privacy Policy, we will update the "Last updated" date at the 
 
 If you have questions about this Privacy Policy, you can contact us at:
 
-**[your-email@example.com]**
+**[abhijeet15oct@gmail.com]**
 
 ---
 
